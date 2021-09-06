@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @gartuaden
 - 👀 Major: Computer Science & Engineering and Art & Techonology in Sogang University
-- 📌 Currently in Tempe, Arizona
 - 💞️ Based on Seoul, South Korea
 
 
