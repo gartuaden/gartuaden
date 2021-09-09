@@ -1,5 +1,5 @@
 
-### 👋 Hi, I’m **Jung Won Lee @gartuaden**
+### 👋 Hi, I’m **JungWon Lee @gartuaden**
 - 👀 Major: Computer Science & Engineering and Art & Techonology in Sogang University
 - 💞️ Based on Seoul, South Korea
 - 🌴 Exchange Student in Arizona State University for 2021 Spring Semester
