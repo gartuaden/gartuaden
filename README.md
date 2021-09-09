@@ -2,7 +2,9 @@
 - 👀 Major: Computer Science & Engineering and Art & Techonology in Sogang University
 - 💞️ Based on Seoul, South Korea
 - 🌴 Exchange Student in Arizona State University for 2021 Spring Semester
-- 🌞 visit [my tistory](https://gartuaden.tistory.com/#)
+- 💐 Interests: Games(#ApexLegends, #Overwatch), Films(#MCU, #X-Men, #StarWars, #Shadow&Bone, #TripleFrontier)...
+- 📌 Email: gartuaden@gmail.com
+- 🌞 visit [my tistory](https://gartuaden.dtistory.com/#)
 - 🦋 visit [my behance](https://www.behance.net/gartuaden)
 
 
