@@ -7,7 +7,7 @@
 - 📌 Email: gartuaden@gmail.com
 - 🦋  visit [my tistory](https://gartuaden.dtistory.com/#) & [my behance](https://www.behance.net/gartuaden) ❣️
 
-<img src="https://i.ibb.co/yNbF2qJ/al.gif" width="300"/> <img src="./ow.gif" width = "300"/> <img src="https://i.ibb.co/MGCjYr2/dv.gif" width="300"/>
+<img src="https://i.ibb.co/yNbF2qJ/al.gif" width="250"/> <img src="./ow.gif" width = "250"/> <img src="https://i.ibb.co/MGCjYr2/dv.gif" width="250"/>
 
 
 
