@@ -4,8 +4,7 @@
 - 🌴 Exchange Student in Arizona State University for 2021 Spring Semester
 - 💐 Interests: Games(#ApexLegends, #Overwatch), Films(#MCU, #X-Men, #StarWars, #Shadow&Bone, #TripleFrontier)...
 - 📌 Email: gartuaden@gmail.com
-- 🌞 visit [my tistory](https://gartuaden.dtistory.com/#)
-- 🦋 visit [my behance](https://www.behance.net/gartuaden)
+- 🦋  visit [my tistory](https://gartuaden.dtistory.com/#) & [my behance](https://www.behance.net/gartuaden)
 
 
 <!---
