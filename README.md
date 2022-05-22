@@ -3,7 +3,7 @@
 - 👀 Major: Computer Science & Engineering and Art & Techonology in Sogang University
 - 💞️ Based on Seoul, South Korea
 - 🌴 Exchange Student in Arizona State University for 2021 Spring Semester
-- ⌨️ Skills: <img src="https://img.shields.io/badge/https://simpleicons.org/icons/python.svg-C%2B%2B-red"> <img src="https://img.shields.io/badge/-C-orange"> <img src="https://img.shields.io/badge/-Python-green">
+- ⌨️ Skills: <img src="https://img.shields.io/badge/-C%2B%2B-red"> <img src="https://img.shields.io/badge/-C-orange"> <img src="https://img.shields.io/badge/-Python-green"> <img src="https://img.shields.io/badge/-p5.js-pink"> <img src="https://img.shields.io/badge/-JavaScript-blue">
 - 💐 Interests: Games(*#ApexLegends, #Overwatch*), Films(*#MCU, #X-Men, #StarWars, #Shadow&Bone, #TripleFrontier*)...
 - 📌 Email: gartuaden@gmail.com
 - 🦋  visit [my tistory](https://gartuaden.tistory.com/#) & [my behance](https://www.behance.net/gartuaden) ❣️
