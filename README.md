@@ -9,7 +9,7 @@
 - 📌 Email: gartuaden@daum.net
 - 🦋  visit [my tistory](https://gartuaden.tistory.com/#) & [my behance](https://www.behance.net/gartuaden) ❣️
 
-<img src="https://i.ibb.co/yNbF2qJ/al.gif" width="200"/> <img src="./ow.gif" width = "200"/> <img src="https://i.ibb.co/MGCjYr2/dv.gif" width="200"/> <img src="https://i.ibb.co/Z1mnJDj/tumblr-d60408b2bc30e67adfa30ada8517c257-c59da24a-540.gif" width="200"/>
+<img src="https://i.ibb.co/yNbF2qJ/al.gif" width="200"/> <img src="./ow.gif" width = "200"/> <img src="https://i.ibb.co/MGCjYr2/dv.gif" width="200"/> <img src="./tg.gif" width="200"/>
 
 
 <!---
