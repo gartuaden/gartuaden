@@ -4,7 +4,7 @@
 - 💞️ Based on Seoul, South Korea
 - 🌴 Exchange Student in Arizona State University for 2021 Spring Semester
 - ⌨️ Skills: <img src="https://img.shields.io/badge/-C%2B%2B-red"> <img src="https://img.shields.io/badge/-C-orange"> <img src="https://img.shields.io/badge/-Python-green"> <img src="https://img.shields.io/badge/-p5.js-pink"> <img src="https://img.shields.io/badge/-JavaScript-blue">
-- 💐 Interests: Games(*#ApexLegends, #Overwatch*), Films(*#X-Men, #StarWars, #TripleFrontier*)...
+- 💐 Interests: Games(*#ApexLegends, #Overwatch*), Films(*#X-Men, #StarWars, #TOP GUN*)...
 - 🌞 MBTI: ENFP(*Extraverted, Intuitive, Feeling, Prospecting*)
 - 📌 Email: gartuaden@daum.net
 - 🦋  visit [my tistory](https://gartuaden.tistory.com/#) & [my behance](https://www.behance.net/gartuaden) ❣️
